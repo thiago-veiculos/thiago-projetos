@@ -1,0 +1,1 @@
+Eu achei que ia fazer muitas coisas nas férias, mas no final quando percebi, eu tinha feito nada, devo ter saído algumas vezes, no máximo umas 2 vezes, mas resumindo tudo, eu fiquei jogando a férias toda.
